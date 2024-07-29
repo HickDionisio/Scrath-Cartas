@@ -1,2 +1,0 @@
-# Scrath-Cartas
-Cartinhas,waal
